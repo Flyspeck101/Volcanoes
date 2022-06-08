@@ -5,7 +5,7 @@ https://en.wikipedia.org/wiki/Volcano Volcanoes are places in the Earth where th
 ## How volcanoes are formed
 https://www.bgs.ac.uk/discovering-geology/earth-hazards/volcanoes/how-volcanoes-form-2/ https://www.onegeology.org/extra/kids/volcanoes.html#:~:text=A%20volcano%20is%20formed%20when,are%20thrown%20into%20the%20air.
     
-## How does a volcano work?
+## How a volcano works
     
 ## Case study: [active volcano]
     
