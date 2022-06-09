@@ -14,18 +14,7 @@ Stratovolcanoes, or composite volcanoes, are conical volcanoes built up by many 
 
 ## How a volcano works
     
-## Case study: Mount Kilauea  
-help idk what to write 
-1. Find an active volcano
-2. Find an inactive volcano
-3. Find a wikipedia of the volcanoes
-4. Find threats it poses to life.
-5. Location
-6. Eruptions.
-7. Type
-8. Picture
-
-I just posted that on reddit
+## Case study: Mount Kilauea 
 
 Mount Kilauea is a volcano in the southeast of the Big Island of Hawaii. It has erupted many times, with the first eruption predating humans. the oldest exposed lava is over 2800 years old. It Kilauea is one of the most active volcanoes in the world, having erupted many times and continuing to erupt even today. It made headlines in 2019 as lava from the Hawaiian chain of volcanoes seeped towards cities. 
 
