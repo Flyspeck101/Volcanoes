@@ -43,13 +43,23 @@ Mauna Kea's dormancy means that it is highly unlikely to pose a threat to any lo
 
 ## Sources
 https://en.wikipedia.org/wiki/Volcano
+
 https://www.youtube.com/watch?v=LQwZwKS9RPs
+
 https://www.youtube.com/watch?v=hDNlu7Qf6_E
+
 https://www.bgs.ac.uk/discovering-geology/earth-hazards/volcanoes/how-volcanoes-form/
+
 https://en.wikipedia.org/wiki/Shield_volcano
+
 https://en.wikipedia.org/wiki/Stratovolcano#Effects_on_climate_and_atmosphere
+
 https://www.bgs.ac.uk/discovering-geology/earth-hazards/volcanoes/how-volcanoes-form-2/
+
 https://www.onegeology.org/extra/kids/volcanoes.html
+
 https://www.youtube.com/watch?v=_zeUdtx_KAI
+
 https://www.dkfindout.com/us/earth/volcanoes/how-volcano-erupts/
+
 https://en.wikipedia.org/wiki/Mauna_Kea
